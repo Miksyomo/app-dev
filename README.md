@@ -24,6 +24,8 @@ In a futuristic world, a group of unlikely heroes comes together to save the uni
 "Courage is not the absence of fear, but the triumph over it." - Captain Courage
 
 
+
+
 ## Fun Facts
 - The special effects were created by award-winning CGI artists.
 - The series was inspired by classic sci-fi literature.
